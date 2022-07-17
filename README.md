@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DBZnutz
 - 👀 I’m interested in hacking the world & cloning my minions.
 - 🌱 I’m currently learning to code... I can only do so much mentally.
-- 💞️ I’m looking to collaborate on global collaboration for business domination.
+- 💞️ I’m looking for global collaboration to assert business dominance.
 - 📫 How to reach me probably Twitter cause FB keeps jailing me. @deebB33Nit
 
 <!---
